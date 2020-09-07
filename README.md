@@ -12,6 +12,6 @@
 
 电脑：
 
-爱博TV
+爱博TV下载
 
 电脑：https://git.io/JUZUX
